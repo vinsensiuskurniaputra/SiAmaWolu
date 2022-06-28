@@ -1,3 +1,0 @@
-# SiAmaWolu
-# SiAmaWolu
-# SiAmaWolu
